@@ -216,4 +216,4 @@ SofaScore is available as a **complete free version**, providing full access to 
 Don’t miss out on the excitement of your favorite sports—**download SofaScore today** and stay ahead of the game!
 
 ---
-**Last updated:** 2026-10-10 17:45:03 UTC
+**Last updated:** 2026-10-10 21:30:29 UTC
